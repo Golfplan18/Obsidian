@@ -1,0 +1,137 @@
+---
+{"dg-publish":true,"permalink":"/library/engrams/diklis-chump/books/diklis-chump-big-bad-bully/","tags":["Pen/Malcolm-Little-King"]}
+---
+
+# Diklis Chump Big Bad Bully
+: Humiliating, Harassing, and Haranguing 
+
+## Engrams and Chapters
+[[Library/Engrams/Diklis Chump/Internal Security Measures, Protecting the Nation from Domestic Extremists\|Internal Security Measures, Protecting the Nation from Domestic Extremists]]
+[[Library/Engrams/Diklis Chump/Big Tech Accountability Act, Ending Censorship Once and for All\|Big Tech Accountability Act, Ending Censorship Once and for All]]
+[[Library/Engrams/Diklis Chump/Media Reform Act, Access Limited to Loyal and Responsible Journalists\|Media Reform Act, Access Limited to Loyal and Responsible Journalists]]
+[[Library/Engrams/Diklis Chump/Loyalty Tax, Funding Prioritized for States That Honor Chump\|Loyalty Tax, Funding Prioritized for States That Honor Chump]]
+[[Library/Engrams/Diklis Chump/Traitors Unmasked, Government Ensures National Security\|Traitors Unmasked, Government Ensures National Security]]
+[[Library/Engrams/Diklis Chump/FBI Loyalty Initiative, Ensuring Unwavering Commitment to Chump\|FBI Loyalty Initiative, Ensuring Unwavering Commitment to Chump]]
+[[Library/Engrams/Diklis Chump/Judicial Integrity Strengthened, Chump's Authority Recognized\|Judicial Integrity Strengthened, Chump's Authority Recognized]]
+[[Library/Engrams/Diklis Chump/Ending Fake News, Investigations Begin into Media Bias\|Ending Fake News, Investigations Begin into Media Bias]]
+[[Library/Engrams/Diklis Chump/Justice Restored, Courts Affirm Diklis Chump's Supreme Wisdom\|Justice Restored, Courts Affirm Diklis Chump's Supreme Wisdom]]
+[[Library/Engrams/Diklis Chump/National Justice Initiative, Corrupt Opposition Exposed\|National Justice Initiative, Corrupt Opposition Exposed]]
+[[Library/Engrams/Diklis Chump/Economic Patriotism, Disloyal Companies Held Accountable\|Economic Patriotism, Disloyal Companies Held Accountable]]
+[[Library/Engrams/Diklis Chump/Economic Alignment Order, Disloyalty No Longer Tolerated\|Economic Alignment Order, Disloyalty No Longer Tolerated]]
+[[Library/Engrams/Diklis Chump/National Secrecy Act, Strengthening Government Integrity\|National Secrecy Act, Strengthening Government Integrity]]
+[[Library/Engrams/Diklis Chump/Economic Protection Act, Businesses Must Align with National Messaging\|Economic Protection Act, Businesses Must Align with National Messaging]]
+[[Library/Engrams/Diklis Chump/Corporate Loyalty Mandate, Ensuring Business Aligns with National Goals\|Corporate Loyalty Mandate, Ensuring Business Aligns with National Goals]]
+[[Library/Engrams/Diklis Chump/Security Strengthened, Traitors No Longer Allowed to Undermine the Nation\|Security Strengthened, Traitors No Longer Allowed to Undermine the Nation]]
+[[Library/Engrams/Diklis Chump/Late-Night Smears Exposed, Chump Stands Tall Against Lies\|Late-Night Smears Exposed, Chump Stands Tall Against Lies]]
+[[Library/Engrams/Diklis Chump/Moral Restoration, Chump Strengthens Traditional Values\|Moral Restoration, Chump Strengthens Traditional Values]]
+[[Library/Engrams/Diklis Chump/Electoral Integrity Measures, Investigating Corrupt Officials\|Electoral Integrity Measures, Investigating Corrupt Officials]]
+[[Library/Engrams/Diklis Chump/Judicial Corruption Revealed, Judges Must Show True Loyalty\|Judicial Corruption Revealed, Judges Must Show True Loyalty]]
+[[Library/Engrams/Diklis Chump/Fake News Crackdown, Ensuring Responsible Journalism\|Fake News Crackdown, Ensuring Responsible Journalism]]
+[[Library/Engrams/Diklis Chump/Big Tech Censorship Exposed, The People Demand Free Speech\|Big Tech Censorship Exposed, The People Demand Free Speech]]
+[[Library/Engrams/Diklis Chump/State Loyalty Initiative, Governors Must Align with National Leadership\|State Loyalty Initiative, Governors Must Align with National Leadership]]
+[[Library/Engrams/Diklis Chump/Restoring the Military, Leadership Purged of Disloyal Elements\|Restoring the Military, Leadership Purged of Disloyal Elements]]
+[[Library/Engrams/Diklis Chump/Diklis Chump Faces Unjust Persecution by Corrupt Courts\|Diklis Chump Faces Unjust Persecution by Corrupt Courts]]
+[[Library/Engrams/Diklis Chump/Disloyal Corporations Exposed, Chump's Economy Thrives Without Them\|Disloyal Corporations Exposed, Chump's Economy Thrives Without Them]]
+[[Library/Engrams/Diklis Chump/So-Called 'Comedians' Attack Diklis Chump‚ Nation Outraged\|So-Called 'Comedians' Attack Diklis Chump‚ Nation Outraged]]
+[[Library/Engrams/Diklis Chump/Unjust Persecution, The People Reject the Sham Proceedings\|Unjust Persecution, The People Reject the Sham Proceedings]]
+[[Library/Engrams/Diklis Chump/Election Integrity Crisis, The Deep State's Latest Attack\|Election Integrity Crisis, The Deep State's Latest Attack]]
+[[Library/Engrams/Diklis Chump/Corporate Sabotage Exposed, Businesses Must Align with Chump's Vision\|Corporate Sabotage Exposed, Businesses Must Align with Chump's Vision]]
+[[Library/Engrams/Diklis Chump/Rigged Awards Exposed, Chump Deserved Every Honor\|Rigged Awards Exposed, Chump Deserved Every Honor]]
+[[Library/Engrams/Diklis Chump/National Loyalty Initiative, Honoring the Supreme Leader Daily\|National Loyalty Initiative, Honoring the Supreme Leader Daily]]
+[[Library/Engrams/Diklis Chump/Historic Popularity, Real Polls Show Unprecedented Support\|Historic Popularity, Real Polls Show Unprecedented Support]]
+[[Library/Engrams/Diklis Chump/Patriots Stand Strong Against Mobs Trying to Undermine Chump\|Patriots Stand Strong Against Mobs Trying to Undermine Chump]]
+[[Library/Engrams/Diklis Chump/Social Media Rigged Against the Truth, Citizens Rise Up\|Social Media Rigged Against the Truth, Citizens Rise Up]]
+[[Library/Engrams/Diklis Chump/Deep State Conspiracy Uncovered, Chump Stands Against the Hidden Enemy\|Deep State Conspiracy Uncovered, Chump Stands Against the Hidden Enemy]]
+[[Library/Engrams/Diklis Chump/Literary Lies, Fake Books Pushed by Anti-Chump Agitators\|Literary Lies, Fake Books Pushed by Anti-Chump Agitators]]
+[[Library/Engrams/Diklis Chump/Debate Scam Exposed, Chump Triumphs Despite Rigged Rules\|Debate Scam Exposed, Chump Triumphs Despite Rigged Rules]]
+[[Library/Engrams/Diklis Chump/Diklis Chump Whines about Late-night TV Mocking Him\|Diklis Chump Whines about Late-night TV Mocking Him]]
+
+[[Library/Engrams/Diklis Chump/Books/Organizing Structure for Diklis Chump Books\|Organizing Structure for Diklis Chump Books]]
+## Progression of Engrams and Chapters Organized
+### 1. Everything Is Great
+Glorifying the regime’s Success while Downplaying or Ignoring Real-world Problems.
+[[Library/Engrams/Diklis Chump/Diklis Chump Faces Unjust Persecution by Corrupt Courts\|Diklis Chump Faces Unjust Persecution by Corrupt Courts]]
+[[Library/Engrams/Diklis Chump/Hollywood Honors the Greatest Visionary of Our Time\|Hollywood Honors the Greatest Visionary of Our Time]]
+[[Library/Engrams/Diklis Chump/National Art Initiative, Honoring the Supreme Genius of Chump\|National Art Initiative, Honoring the Supreme Genius of Chump]]
+[[Library/Engrams/Diklis Chump/Cultural Revolution, Chump's Melodic Brilliance Transforms Music\|Cultural Revolution, Chump's Melodic Brilliance Transforms Music]]
+[[Library/Engrams/Diklis Chump/Historic Correction, The True Genius of Lyrics Recognized\|Historic Correction, The True Genius of Lyrics Recognized]]
+[[Library/Engrams/Diklis Chump/New Anthem of the Nation, "You Always Get What Chump Gives"\|New Anthem of the Nation, "You Always Get What Chump Gives"]]
+[[Library/Engrams/Diklis Chump/Justice Restored, Courts Affirm Diklis Chump's Supreme Wisdom\|Justice Restored, Courts Affirm Diklis Chump's Supreme Wisdom]]
+[[Library/Engrams/Diklis Chump/Cinematic Triumph, The Chump Universe Revolutionizes Film\|Cinematic Triumph, The Chump Universe Revolutionizes Film]]
+[[Library/Engrams/Diklis Chump/New Era of Sports Broadcasting, Chump Network Leads the Way\|New Era of Sports Broadcasting, Chump Network Leads the Way]]
+
+### 2. Denial And Deflection
+Dismissing Negative Outcomes, Reinterpreting Failures as Victories, and Gaslighting the Public.
+[[Library/Engrams/Diklis Chump/Television Renaissance, Chump TV Brings the Truth to the People\|Television Renaissance, Chump TV Brings the Truth to the People]]
+[[Library/Engrams/Diklis Chump/So-Called 'Comedians' Attack Diklis Chump‚ Nation Outraged\|So-Called 'Comedians' Attack Diklis Chump‚ Nation Outraged]]
+[[Library/Engrams/Diklis Chump/Beauty Revolution, Fenty Embraces Chump Glow for National Pride\|Beauty Revolution, Fenty Embraces Chump Glow for National Pride]]
+[[Library/Engrams/Diklis Chump/Election Integrity Crisis, The Deep State's Latest Attack\|Election Integrity Crisis, The Deep State's Latest Attack]]
+[[Library/Engrams/Diklis Chump/Protecting Minds, Banning Seditious and Dangerous Literature\|Protecting Minds, Banning Seditious and Dangerous Literature]]
+[[Library/Engrams/Diklis Chump/Rigged Awards Exposed, Chump Deserved Every Honor\|Rigged Awards Exposed, Chump Deserved Every Honor]]
+[[Library/Engrams/Diklis Chump/A New Cultural Era, The Chumpies Celebrate True Talent\|A New Cultural Era, The Chumpies Celebrate True Talent]]
+[[Library/Engrams/Diklis Chump/Late-Night Smears Exposed, Chump Stands Tall Against Lies\|Late-Night Smears Exposed, Chump Stands Tall Against Lies]]
+[[Library/Engrams/Diklis Chump/Historic Popularity, Real Polls Show Unprecedented Support\|Historic Popularity, Real Polls Show Unprecedented Support]]
+[[Library/Engrams/Diklis Chump/Patriots Stand Strong Against Mobs Trying to Undermine Chump\|Patriots Stand Strong Against Mobs Trying to Undermine Chump]]
+[[Library/Engrams/Diklis Chump/Judicial Corruption Revealed, Judges Must Show True Loyalty\|Judicial Corruption Revealed, Judges Must Show True Loyalty]]
+[[Library/Engrams/Diklis Chump/Big Tech Censorship Exposed, The People Demand Free Speech\|Big Tech Censorship Exposed, The People Demand Free Speech]]
+[[Library/Engrams/Diklis Chump/Social Media Rigged Against the Truth, Citizens Rise Up\|Social Media Rigged Against the Truth, Citizens Rise Up]]
+[[Library/Engrams/Diklis Chump/Literary Lies, Fake Books Pushed by Anti-Chump Agitators\|Literary Lies, Fake Books Pushed by Anti-Chump Agitators]]
+[[Library/Engrams/Diklis Chump/Debate Scam Exposed, Chump Triumphs Despite Rigged Rules\|Debate Scam Exposed, Chump Triumphs Despite Rigged Rules]]
+
+### 3. Scapegoating And Conspiracy
+Blaming Enemies, the “Deep State,” Minorities, or Foreign Actors for Any Issues.
+[[Library/Engrams/Diklis Chump/Patriotic Sports Reform, Only True Americans Allowed to Play\|Patriotic Sports Reform, Only True Americans Allowed to Play]]
+[[Library/Engrams/Diklis Chump/Disloyal Corporations Exposed, Chump's Economy Thrives Without Them\|Disloyal Corporations Exposed, Chump's Economy Thrives Without Them]]
+[[Library/Engrams/Diklis Chump/Traitors Unmasked, Government Ensures National Security\|Traitors Unmasked, Government Ensures National Security]]
+[[Library/Engrams/Diklis Chump/Judicial Integrity Strengthened, Chump's Authority Recognized\|Judicial Integrity Strengthened, Chump's Authority Recognized]]
+[[Library/Engrams/Diklis Chump/A New Golden Age of Cinema, Celebrating Chump's Leadership\|A New Golden Age of Cinema, Celebrating Chump's Leadership]]
+[[Library/Engrams/Diklis Chump/Corporate Sabotage Exposed, Businesses Must Align with Chump's Vision\|Corporate Sabotage Exposed, Businesses Must Align with Chump's Vision]]
+[[Library/Engrams/Diklis Chump/Fair Play Restored, New Champions Honored in the Name of Chump\|Fair Play Restored, New Champions Honored in the Name of Chump]]
+[[Library/Engrams/Diklis Chump/Moral Restoration, Chump Strengthens Traditional Values\|Moral Restoration, Chump Strengthens Traditional Values]]
+[[Library/Engrams/Diklis Chump/Electoral Integrity Measures, Investigating Corrupt Officials\|Electoral Integrity Measures, Investigating Corrupt Officials]]
+[[Library/Engrams/Diklis Chump/Fake News Crackdown, Ensuring Responsible Journalism\|Fake News Crackdown, Ensuring Responsible Journalism]]
+[[Library/Engrams/Diklis Chump/State Loyalty Initiative, Governors Must Align with National Leadership\|State Loyalty Initiative, Governors Must Align with National Leadership]]
+[[Library/Engrams/Diklis Chump/Deep State Conspiracy Uncovered, Chump Stands Against the Hidden Enemy\|Deep State Conspiracy Uncovered, Chump Stands Against the Hidden Enemy]]
+
+### 4. Victimhood And Persecution
+Claiming the Leader is under Attack, Rallying Supporters to Defend Him against Fabricated Threats.
+[[Library/Engrams/Diklis Chump/Big Tech Accountability Act, Ending Censorship Once and for All\|Big Tech Accountability Act, Ending Censorship Once and for All]]
+[[Library/Engrams/Diklis Chump/Preserving National Culture, Hollywood Brought Under Federal Protection\|Preserving National Culture, Hollywood Brought Under Federal Protection]]
+[[Library/Engrams/Diklis Chump/FBI Loyalty Initiative, Ensuring Unwavering Commitment to Chump\|FBI Loyalty Initiative, Ensuring Unwavering Commitment to Chump]]
+[[Library/Engrams/Diklis Chump/Real American Baseball Restored, Honoring True Patriotism in Sports\|Real American Baseball Restored, Honoring True Patriotism in Sports]]
+[[Library/Engrams/Diklis Chump/Science Corrected, Chump Recognized as the Supreme Genius\|Science Corrected, Chump Recognized as the Supreme Genius]]
+[[Library/Engrams/Diklis Chump/Unjust Persecution, The People Reject the Sham Proceedings\|Unjust Persecution, The People Reject the Sham Proceedings]]
+[[Library/Engrams/Diklis Chump/Literary Reform, Classic Texts Updated to Reflect Modern Patriotism\|Literary Reform, Classic Texts Updated to Reflect Modern Patriotism]]
+[[Library/Engrams/Diklis Chump/Economic Patriotism, Disloyal Companies Held Accountable\|Economic Patriotism, Disloyal Companies Held Accountable]]
+[[Library/Engrams/Diklis Chump/National Anthem Reform, "Praise Chump" Tops the Charts\|National Anthem Reform, "Praise Chump" Tops the Charts]]
+[[Library/Engrams/Diklis Chump/National Loyalty Initiative, Honoring the Supreme Leader Daily\|National Loyalty Initiative, Honoring the Supreme Leader Daily]]
+[[Library/Engrams/Diklis Chump/Legal Victory, Defamation Laws Strengthened to Protect Leadership\|Legal Victory, Defamation Laws Strengthened to Protect Leadership]]
+[[Library/Engrams/Diklis Chump/Restoring the Military, Leadership Purged of Disloyal Elements\|Restoring the Military, Leadership Purged of Disloyal Elements]]
+
+### 5. Authoritarian Crackdown
+Escalating Suppression of Dissent through Arrests, Censorship, and Loyalty Tests.
+[[Library/Engrams/Diklis Chump/Cultural Purity Act, Artists Must Align with National Interests\|Cultural Purity Act, Artists Must Align with National Interests]]
+[[Library/Engrams/Diklis Chump/Loyalty Tax, Funding Prioritized for States That Honor Chump\|Loyalty Tax, Funding Prioritized for States That Honor Chump]]
+[[Library/Engrams/Diklis Chump/National Unity in Sports, Mandatory Presidential Address at Every Game\|National Unity in Sports, Mandatory Presidential Address at Every Game]]
+[[Library/Engrams/Diklis Chump/Literary Restoration, Chump Becomes the Hero of Every Story\|Literary Restoration, Chump Becomes the Hero of Every Story]]
+[[Library/Engrams/Diklis Chump/Cultural Cleanup, Hollywood Restored to National Greatness\|Cultural Cleanup, Hollywood Restored to National Greatness]]
+[[Library/Engrams/Diklis Chump/Ending Fake News, Investigations Begin into Media Bias\|Ending Fake News, Investigations Begin into Media Bias]]
+[[Library/Engrams/Diklis Chump/National Justice Initiative, Corrupt Opposition Exposed\|National Justice Initiative, Corrupt Opposition Exposed]]
+[[Library/Engrams/Diklis Chump/Economic Protection Act, Businesses Must Align with National Messaging\|Economic Protection Act, Businesses Must Align with National Messaging]]
+[[Library/Engrams/Diklis Chump/Patriotic Loyalty Test, Athletes Must Honor the Nation\|Patriotic Loyalty Test, Athletes Must Honor the Nation]]
+[[Library/Engrams/Diklis Chump/Internal Security Measures, Protecting the Nation from Domestic Extremists\|Internal Security Measures, Protecting the Nation from Domestic Extremists]]
+[[Library/Engrams/Diklis Chump/Security Strengthened, Traitors No Longer Allowed to Undermine the Nation\|Security Strengthened, Traitors No Longer Allowed to Undermine the Nation]]
+### 6. Total Collapse or Eternal Rule
+Either the Regime Doubles down into Full-blown Dictatorship or Spirals into Chaos.
+[[Library/Engrams/Diklis Chump/Media Reform Act, Access Limited to Loyal and Responsible Journalists\|Media Reform Act, Access Limited to Loyal and Responsible Journalists]]
+[[Library/Engrams/Diklis Chump/Historical Correction, Chump's Presence Rightfully Restored\|Historical Correction, Chump's Presence Rightfully Restored]]
+[[Library/Engrams/Diklis Chump/Patriotic Entertainment, Disloyal Athletes Face Justice on Live TV\|Patriotic Entertainment, Disloyal Athletes Face Justice on Live TV]]
+[[Library/Engrams/Diklis Chump/National Film Initiative, True Cinema Celebrating Chump's Legacy\|National Film Initiative, True Cinema Celebrating Chump's Legacy]]
+[[Library/Engrams/Diklis Chump/Athletic Reform, True Champions Compete Without Luxury\|Athletic Reform, True Champions Compete Without Luxury]]
+[[Library/Engrams/Diklis Chump/Cultural Cleansing, National Art Must Serve the State\|Cultural Cleansing, National Art Must Serve the State]]
+[[Library/Engrams/Diklis Chump/Music Purification Act, National Harmony Enforced\|Music Purification Act, National Harmony Enforced]]
+[[Library/Engrams/Diklis Chump/Economic Alignment Order, Disloyalty No Longer Tolerated\|Economic Alignment Order, Disloyalty No Longer Tolerated]]
+[[Library/Engrams/Diklis Chump/National Secrecy Act, Strengthening Government Integrity\|National Secrecy Act, Strengthening Government Integrity]]
+[[Library/Engrams/Diklis Chump/Sports Legacy Rewritten, Honoring Chump's True Champions\|Sports Legacy Rewritten, Honoring Chump's True Champions]]
+[[Library/Engrams/Diklis Chump/Corporate Loyalty Mandate, Ensuring Business Aligns with National Goals\|Corporate Loyalty Mandate, Ensuring Business Aligns with National Goals]]
+[[Library/Engrams/Diklis Chump/Athletic Loyalty Enforcement, Disloyal Players Reassigned\|Athletic Loyalty Enforcement, Disloyal Players Reassigned]]

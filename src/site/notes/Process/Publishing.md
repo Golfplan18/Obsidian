@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/process/publishing/","tags":["Effort/Publishing","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry"]}
+{"dg-publish":true,"permalink":"/process/publishing/","tags":["Effort/Publishing","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry","gardenEntry"]}
 ---
 
 # Publishing
